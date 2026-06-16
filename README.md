@@ -109,7 +109,7 @@ upskillCampus/
 
 **Zakeer** | SBIT  
 📧 zakeerbhaisk786@gmail.com  
-🔗 [LinkedIn](#) | [GitHub](#)
+🔗 [LinkedIn](www.linkedin.com/in/zakeer-shaik-undefined-87118635b) | [GitHub](https://github.com/zakeerbhai)
 
 ---
 
